@@ -1,1 +1,3 @@
-# Assignment-1-Reflection.
+# Assignment-1-Reflection
+
+By working through the first assignment I was able to reflect on my knowledge gained in organized writing that is understandable to other readers.  I chose the topic of how to train a horse because I grew up on a farm with cattle and horses, so it is something I have had personal experience with.  Not everyone, including farmers, have had experience with horses.  Therefore it is beneficial for anyone interested in becoming a part of the horse business, or just owning one for pleasure, to understand the needs and process of owning one.  Just like any other pet or animal, a horse needs to be cared for in order to ensure the best life for it and the owner.  I enjoyed the topic and sharing my knowledge on how to train a horse.  Hopefully it will provide the beginning and basic understandings to anyone desiring to train, ride, or simply own a horse.  
